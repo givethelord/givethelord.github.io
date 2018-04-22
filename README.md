@@ -1,1 +1,0 @@
-# givethelord.github.io
